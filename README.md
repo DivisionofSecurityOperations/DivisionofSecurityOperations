@@ -9,7 +9,11 @@ September 30th, 1998. It's a day I'll never forget. The cop inside me died that 
 ![](https://64.media.tumblr.com/187cc6d085ec1f2c9c86bb12e0ff32c5/1eec762b6c0b98d3-3e/s2048x3072/3089b8b8749fb1562fe8f0b30ad6281e29fbaa25.pnj)
 
 <div align="center">
-Ask us about our alters sources, we would gladly explain which ending or side they're from! Talk to us if we make you uncomfortable, we will gladly fix ourselves!
+Ask us about our alters sources, especially if they come from problematic media, we will gladly explain whether they're source attached or source seperated! The amount of times our Andrew and Ashley have been stereotyped to be from the Questionable Path instead of the Sane Path hurts not only them, but us as a collective as we assume we had done something wrong!
 </div>
 
 ![](https://64.media.tumblr.com/187cc6d085ec1f2c9c86bb12e0ff32c5/1eec762b6c0b98d3-3e/s2048x3072/3089b8b8749fb1562fe8f0b30ad6281e29fbaa25.pnj)
+
+<div align="center">
+Talk to us if we make you uncomfortable, we will gladly fix ourselves!
+</div>
