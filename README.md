@@ -11,7 +11,7 @@ September 30th, 1998. It's a day I'll never forget. The cop inside me died that 
 <div align="center">
   Please ask us about our alters sources, especially if they come from problematic media, we will gladly explain whether they're source attached or source seperated! 
 
-  The amount of times our Andrew and Ashley have been stereotyped to be from the Questionable Path instead of the Sane Path hurts not only them, but us as a collective as we assume we had done something wrong!
+  The amount of times our Andrew and Ashley have been stereotyped to be from the Questionable Path instead of the Sane Path hurts not only them, but us as a collective as we assume we had done something wrong! We can tell you they're not into each other in-sys, besides, Andrew has a loving girlfriend on VRChat!
   
   Introjects can't control what they're sourced from, so please don't assume they were formed from certain media on purpose! Autistic Hyperfixations are also in play here!
 </div>
