@@ -15,6 +15,8 @@ September 30th, 1998. It's a day I'll never forget. The cop inside me died that 
   
   Introjects can't control what they're sourced from, so please don't assume they were formed from certain media on purpose! Autistic Hyperfixations are also in play here!
 
+  DO NOT: Assume Alters are like their source.
+
   We do not support The Coffin of Andy and Leyley for a multitude of reasons, do not assume we support the game!
 </div>
 
