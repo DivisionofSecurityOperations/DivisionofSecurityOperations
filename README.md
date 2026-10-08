@@ -21,7 +21,7 @@
 
   DO NOT: Assume Alters are like their source.
 
-  We do not support The Coffin of Andy and Leyley for a multitude of reasons, do not assume we support the game!
+  We do not support The Coffin of Andy and Leyley for a multitude of reasons, do not assume we support the game just because we have alters introjected from that source!
 </div>
 
 ![](https://64.media.tumblr.com/187cc6d085ec1f2c9c86bb12e0ff32c5/1eec762b6c0b98d3-3e/s2048x3072/3089b8b8749fb1562fe8f0b30ad6281e29fbaa25.pnj)
