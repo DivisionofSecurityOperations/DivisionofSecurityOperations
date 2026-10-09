@@ -15,20 +15,21 @@
 <div align="center">
   Please ask us about our alters sources, especially if they come from problematic media, we will gladly explain whether they're source attached or source seperated! 
   
-  Introjects can't control what they're sourced from, so please don't assume they were formed from certain media on purpose! Autistic Hyperfixations are also in play here!
+  Introjects can't control what they're sourced from, so please don't assume they were formed from certain media on purpose! Autistic Hyperfixations/Special Interests are also in play here!
 
   DO NOT: Assume Alters are like their source.
 
-  We do not support The Coffin of Andy and Leyley for a multitude of reasons, do not assume we support the game just because we have alters introjected from that source!
+  The amount of times our Andrew and Ashley fictive introjects have been stereotyped to be from the Questionable Path (THAT Dream Sequence) instead of the Sane Path hurts not only them, but us as a collective as we assume we had done something wrong! We can tell you they're not into each other in-sys, besides, Andrew has a loving girlfriend on VRChat!
 
   
-  The amount of times our Andrew and Ashley fictive introjects have been stereotyped to be from the Questionable Path (THAT Dream Sequence) instead of the Sane Path hurts not only them, but us as a collective as we assume we had done something wrong! We can tell you they're not into each other in-sys, besides, Andrew has a loving girlfriend on VRChat!
 </div>
 
 ![](https://64.media.tumblr.com/187cc6d085ec1f2c9c86bb12e0ff32c5/1eec762b6c0b98d3-3e/s2048x3072/3089b8b8749fb1562fe8f0b30ad6281e29fbaa25.pnj)
 
 <div align="center">
-Talk to us if we make you uncomfortable, sometimes we don't notice if we do or say something wrong due to our body's Autism!
+  Talk to us if we make you uncomfortable, sometimes we don't notice if we do or say something wrong due to our body's Autism Spectrum Disorder!
+
+  We do not support The Coffin of Andy and Leyley for a plethora of reasons, especially considering one of our traumatic memories has to do with the Questionable Path, do not assume we support the game just because we have alters introjected from that source!
 </div>
 
 ![](https://64.media.tumblr.com/187cc6d085ec1f2c9c86bb12e0ff32c5/1eec762b6c0b98d3-3e/s2048x3072/3089b8b8749fb1562fe8f0b30ad6281e29fbaa25.pnj)
