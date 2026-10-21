@@ -2,6 +2,12 @@
 
 # Division of Security Operations
 
+<p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=jvgvo66prawe06u0e6dgsl0dn&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=jvgvo66prawe06u0e6dgsl0dn&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=true&bar_color=8a0000&bar_color_cover=false">
+  </a>
+</p>
+
 <div align="center">
   Quotes
 
@@ -29,11 +35,5 @@
 </div>
 
 ![](https://64.media.tumblr.com/187cc6d085ec1f2c9c86bb12e0ff32c5/1eec762b6c0b98d3-3e/s2048x3072/3089b8b8749fb1562fe8f0b30ad6281e29fbaa25.pnj)
-
-<p align="center">
-  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=jvgvo66prawe06u0e6dgsl0dn&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=jvgvo66prawe06u0e6dgsl0dn&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=true&bar_color=8a0000&bar_color_cover=false">
-  </a>
-</p>
 
 ![](https://64.media.tumblr.com/187cc6d085ec1f2c9c86bb12e0ff32c5/1eec762b6c0b98d3-3e/s2048x3072/3089b8b8749fb1562fe8f0b30ad6281e29fbaa25.pnj)
