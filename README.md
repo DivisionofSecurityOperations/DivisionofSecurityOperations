@@ -32,7 +32,7 @@
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=jvgvo66prawe06u0e6dgsl0dn&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=jvgvo66prawe06u0e6dgsl0dn&cover_image=true&theme=spotify-embed&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=true&bar_color=53b14f&bar_color_cover=false&mode=dark">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=jvgvo66prawe06u0e6dgsl0dn&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=true&bar_color=8a0000&bar_color_cover=false">
   </a>
 </p>
 
