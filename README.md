@@ -27,7 +27,7 @@
   
   Please ask us about our alters sources instead of assuming, especially if they come from problematic media! Introjects can't control what they're sourced from, so please don't assume they were formed from certain media on purpose! Please do keep in mind that Autistic Hyperfixations/Special Interests are also in play here!
 
-  The amount of times our Andrew and Ashley fictive introjects have been stereotyped to be from the Questionable Path (THAT Dream Sequence) instead of the Sane Path hurts not only them, but us as a collective as we assume we had done something wrong! We can tell you they're not into each other in-sys, besides, Andrew has a loving girlfriend on VRChat!
+  The amount of times our Andrew and Ashley fictive introjects have been stereotyped to be from the Questionable Path (THAT Dream Sequence Ending) instead of the Sane Path hurts not only them, but us as a collective as we assume we had done something wrong! We can tell you they're not into each other in-sys, besides, Andrew has a loving girlfriend on VRChat!
 
   
 </div>
