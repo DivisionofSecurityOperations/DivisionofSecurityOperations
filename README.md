@@ -11,7 +11,7 @@
 <div align="center">
   Quotes
 
-  Seven minutes. Seven minutes is all I can spare to play with you. Here I am offering you my precious time, and you waste it by running around. Oh... playtime is over. How unfortunate for you.
+  Seven minutes. Seven minutes is all I can spare to play with you. Here I am offering you my precious time, and you waste it by running around. Oh... playtime is over, how unfortunate for you.
   
   This is not how I imagined my first day.
   
