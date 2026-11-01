@@ -66,3 +66,4 @@
   <img src="https://64.media.tumblr.com/4bfd3d77619eef2c1deef2296376d88f/29616527a14614fa-22/s250x400/1527c032c39793dfebfcc4c7d138ea9f77608e4a.gifv" alt="Wesker">
 </div>
 
+![](https://64.media.tumblr.com/187cc6d085ec1f2c9c86bb12e0ff32c5/1eec762b6c0b98d3-3e/s2048x3072/3089b8b8749fb1562fe8f0b30ad6281e29fbaa25.pnj)
