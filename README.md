@@ -37,8 +37,6 @@
   
   Talk to us if we make you uncomfortable, sometimes we don't notice if we do or say something wrong due to Autism Spectrum Disorder!
 
-
-
   We've been misdiagnosed with Major Depressive Disorder as we now experience Hypomanic episodes.
 
   We suffer with 4 out of 5 symptoms of Schizophrenia being delusions, hallucinations, grossly disorganized or catatonic behavior, & negative symptoms since we were 13 years old, so if we seem very distant, we do apologize.
@@ -57,3 +55,14 @@
 </div>
 
 ![](https://64.media.tumblr.com/187cc6d085ec1f2c9c86bb12e0ff32c5/1eec762b6c0b98d3-3e/s2048x3072/3089b8b8749fb1562fe8f0b30ad6281e29fbaa25.pnj)
+
+<div align="center">
+   Most Used Ponies
+</div>
+
+<div align="center">
+  <img src="https://64.media.tumblr.com/aa851f9b3db73c094e7a51f0ec1a095a/29616527a14614fa-8a/s250x400/744dbf91c1e04fed1e49f2beef2842b3def1ac8f.gifv" alt="DSO Agent Kennedy">
+  <img src="https://64.media.tumblr.com/7271acac342e9dd9f919aea313ba0318/29616527a14614fa-01/s250x400/3d8c5d5233a35a8a1d372fa09acabeb6f1eca632.gifv" alt="USSTRATCOM Agent Kennedy">
+  <img src="https://64.media.tumblr.com/4bfd3d77619eef2c1deef2296376d88f/29616527a14614fa-22/s250x400/1527c032c39793dfebfcc4c7d138ea9f77608e4a.gifv" alt="Wesker">
+</div>
+
