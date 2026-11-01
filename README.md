@@ -1,4 +1,4 @@
-![](https://64.media.tumblr.com/187cc6d085ec1f2c9c86bb12e0ff32c5/1eec762b6c0b98d3-3e/s2048x3072/3089b8b8749fb1562fe8f0b30ad6281e29fbaa25.pnj)
+![](https://64.media.tumblr.com/4c436e260617030d9dd1cac05fa34ab9/e7f5f8e69146247e-fa/s2048x3072/704a20133bbc13e4d9cde422acb8c6d0850ab759.pnj)
 
 # Division of Security Operations
 
@@ -18,7 +18,7 @@
   September 30th, 1998. It's a day I'll never forget. The cop inside me died that day. And that night, Raccoon City was wiped out, thanks to the bioweapons created by Umbrella. Somehow, I made it out. But too many others... weren't so lucky. I was "asked" later to join a top-secret government program. Not that I had a choice. The training, the punishing missions... nearly killed me, but at least they kept my mind off everything. If I could just forget what happened that night - the pain, even for a second? This time, it can be different. It has to.
 </div>
 
-![](https://64.media.tumblr.com/187cc6d085ec1f2c9c86bb12e0ff32c5/1eec762b6c0b98d3-3e/s2048x3072/3089b8b8749fb1562fe8f0b30ad6281e29fbaa25.pnj)
+![](https://64.media.tumblr.com/2de8337d86d321671638f003deed35dc/e7f5f8e69146247e-7f/s2048x3072/3931a8ea91d83e2bb392e4f376ee58ae7e049a50.pnj)
 
 <div align="center">
   <a href="https://pronouns.cc/@DivisionofSecurityOperations"> Pronouns.cc</a> | Collective/System Information | <a href="https://scratchupload.org/sf/DivisionofSecurityOperations">ScratchFront</a>
@@ -30,7 +30,7 @@
   
 </div>
 
-![](https://64.media.tumblr.com/187cc6d085ec1f2c9c86bb12e0ff32c5/1eec762b6c0b98d3-3e/s2048x3072/3089b8b8749fb1562fe8f0b30ad6281e29fbaa25.pnj)
+![](https://64.media.tumblr.com/b4abe36760e3d6239c245f274c89637b/e7f5f8e69146247e-00/s2048x3072/0c3b4e245c5edcc337df6b71e0607fd7536f8073.pnj)
 
 <div align="center">
   Other Disorder Related Corner
@@ -46,15 +46,7 @@
   We're currently working on getting everything diagnosed as best as we can with the money we earn from Instacart & Uber Eats, but with how slow it is in our town, we don't earn much.
 </div>
 
-![](https://64.media.tumblr.com/187cc6d085ec1f2c9c86bb12e0ff32c5/1eec762b6c0b98d3-3e/s2048x3072/3089b8b8749fb1562fe8f0b30ad6281e29fbaa25.pnj)
-
-<div align="center">
- Pet Peeves
-  
-  I cannot believe we have to put this here, but we do not support problematic media alters introject from, please quit assuming that we do!
-</div>
-
-![](https://64.media.tumblr.com/187cc6d085ec1f2c9c86bb12e0ff32c5/1eec762b6c0b98d3-3e/s2048x3072/3089b8b8749fb1562fe8f0b30ad6281e29fbaa25.pnj)
+![](https://64.media.tumblr.com/c214bf5aee905269aaf1a021e9773690/e7f5f8e69146247e-3c/s2048x3072/5e8c2670f941793897b15db876ad3fb032f6dffd.pnj)
 
 <div align="center">
    Most Used Ponies
@@ -66,4 +58,4 @@
   <img src="https://64.media.tumblr.com/4bfd3d77619eef2c1deef2296376d88f/29616527a14614fa-22/s250x400/1527c032c39793dfebfcc4c7d138ea9f77608e4a.gifv" alt="Wesker">
 </div>
 
-![](https://64.media.tumblr.com/187cc6d085ec1f2c9c86bb12e0ff32c5/1eec762b6c0b98d3-3e/s2048x3072/3089b8b8749fb1562fe8f0b30ad6281e29fbaa25.pnj)
+![](https://64.media.tumblr.com/a13ebf9a043b2fa28f14dc522041a721/e7f5f8e69146247e-46/s2048x3072/f5a1b1567c02e7d37aaeaee801799fa5808613d9.pnj)
