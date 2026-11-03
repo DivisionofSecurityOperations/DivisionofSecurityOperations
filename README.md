@@ -12,6 +12,8 @@
   Quotes
 
   Seven minutes. Seven minutes is all I can spare to play with you. Here I am offering you my precious time, and you waste it by running around. Oh... playtime is over, how fortunate for you.
+
+  I'm not destroying the world, I'm saving it!
   
   This is not how I imagined my first day.
   
@@ -39,7 +41,7 @@
 
   We've been misdiagnosed with Major Depressive Disorder as we now experience Hypomanic episodes.
 
-  We suffer with 4 out of 5 symptoms of Schizophrenia being delusions, hallucinations, grossly disorganized or catatonic behavior, & negative symptoms since we were 13 years old, so if we seem very distant, we do apologize.
+  We have been suffering with 4 out of 5 symptoms of Schizophrenia being delusions, hallucinations, grossly disorganized or catatonic behavior, & negative symptoms since we were 13 years old, so if we seem very distant, we do apologize.
 
   If you're wondering why we don't have a lot of these diagnosed yet, it is due to the fact we aren't able to make enough money to get out and diagnosed with mental illnesses.
 
