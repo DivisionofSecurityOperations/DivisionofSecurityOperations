@@ -11,13 +11,19 @@
 <div align="center">
   Quotes
 
+  Resident Evil 2 Remake
+
+  This is not how I imagined my first day.
+
+  Resident Evil 4 Remake
+  September 30th, 1998. It's a day I'll never forget. The cop inside me died that day. And that night, Raccoon City was wiped out, thanks to the bioweapons created by Umbrella. Somehow, I made it out. But too many others... weren't so lucky. I was "asked" later to join a top-secret government program. Not that I had a choice. The training, the punishing missions... nearly killed me, but at least they kept my mind off everything. If I could just forget what happened that night - the pain, even for a second? This time, it can be different. It has to.
+
+  Where's everybody going, bingo?
+
+  Resident Evil 5
   Seven minutes. Seven minutes is all I can spare to play with you. Here I am offering you my precious time, and you waste it by running around. Oh... playtime is over, how fortunate for you.
 
   I'm not destroying the world, I'm saving it!
-  
-  This is not how I imagined my first day.
-  
-  September 30th, 1998. It's a day I'll never forget. The cop inside me died that day. And that night, Raccoon City was wiped out, thanks to the bioweapons created by Umbrella. Somehow, I made it out. But too many others... weren't so lucky. I was "asked" later to join a top-secret government program. Not that I had a choice. The training, the punishing missions... nearly killed me, but at least they kept my mind off everything. If I could just forget what happened that night - the pain, even for a second? This time, it can be different. It has to.
 </div>
 
 ![](https://64.media.tumblr.com/2de8337d86d321671638f003deed35dc/e7f5f8e69146247e-7f/s2048x3072/3931a8ea91d83e2bb392e4f376ee58ae7e049a50.pnj)
