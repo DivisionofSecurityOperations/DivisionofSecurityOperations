@@ -69,7 +69,7 @@
 <div align="center">
   <img src="https://64.media.tumblr.com/aa851f9b3db73c094e7a51f0ec1a095a/29616527a14614fa-8a/s250x400/744dbf91c1e04fed1e49f2beef2842b3def1ac8f.gifv" alt="DSO Agent Kennedy">
   <img src="https://64.media.tumblr.com/7271acac342e9dd9f919aea313ba0318/29616527a14614fa-01/s250x400/3d8c5d5233a35a8a1d372fa09acabeb6f1eca632.gifv" alt="USSTRATCOM Agent Kennedy">
-  <img src="https://64.media.tumblr.com/4bfd3d77619eef2c1deef2296376d88f/29616527a14614fa-22/s250x400/1527c032c39793dfebfcc4c7d138ea9f77608e4a.gifv" alt="Wesker">
+  <img src="https://64.media.tumblr.com/0b798e18c587af22bcd2bdd85fc3c8fe/29616527a14614fa-ca/s250x400/2581b67b928d52a215bb55bcea4a9cb4a61bde5c.gifv" alt="Wesker">
 </div>
 
 ![](https://64.media.tumblr.com/a13ebf9a043b2fa28f14dc522041a721/e7f5f8e69146247e-46/s2048x3072/f5a1b1567c02e7d37aaeaee801799fa5808613d9.pnj)
