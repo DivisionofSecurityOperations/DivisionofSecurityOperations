@@ -29,7 +29,11 @@
   
   Seven minutes. Seven minutes is all I can spare to play with you. Here I am offering you my precious time, and you waste it by running around. Oh... playtime is over, how fortunate for you.
 
-  I'm not destroying the world, I'm saving it!
+  The right to be a god. You? Arrogant even until the end. Only one truly capable of "being" a god, deserves that right. The right... With Uroboros, I have that right.
+
+  Let me clarify something for you, Chris. I don't think of myself as a king. No, I am a god! And even kings bow to gods!
+  
+  Every day, humans come one step closer to self-destruction. I'm not destroying the world, I'm saving it!
 </div>
 
 ![](https://64.media.tumblr.com/2de8337d86d321671638f003deed35dc/e7f5f8e69146247e-7f/s2048x3072/3931a8ea91d83e2bb392e4f376ee58ae7e049a50.pnj)
