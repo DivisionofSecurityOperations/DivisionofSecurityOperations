@@ -44,11 +44,8 @@
   Please ask us about our alters sources instead of assuming, especially if they come from problematic media! Introjects can't control what they're sourced from, so please don't assume they were formed from certain media on purpose! Please do keep in mind that Autistic Hyperfixations/Special Interests are also in play here!
 
   The amount of times our Andrew and Ashley fictive introjects have been stereotyped to be from the Questionable Path (THAT Dream Sequence Ending) instead of the Sane Path hurts not only them, but us as a collective as we assume we had done something wrong! We can tell you they're not into each other in-sys, besides, Andrew has a loving girlfriend on VRChat!
-
   
 </div>
-
-![](https://64.media.tumblr.com/b4abe36760e3d6239c245f274c89637b/e7f5f8e69146247e-00/s2048x3072/0c3b4e245c5edcc337df6b71e0607fd7536f8073.pnj)
 
 <div align="center">
   Other Disorder Related Corner
@@ -62,6 +59,15 @@
   If you're wondering why we don't have a lot of these diagnosed yet, it is due to the fact we aren't able to make enough money to get out and diagnosed with mental illnesses.
 
   We're currently working on getting everything diagnosed as best as we can with the money we earn from Instacart & Uber Eats, but with how slow it is in our town, we don't earn much.
+</div>
+
+![](https://64.media.tumblr.com/b4abe36760e3d6239c245f274c89637b/e7f5f8e69146247e-00/s2048x3072/0c3b4e245c5edcc337df6b71e0607fd7536f8073.pnj)
+
+<div align="center">
+Pony Town Mutuals
+  
+  [@cedarDogg](https://github.com/cedarDogg), [@ethanwinxters](https://github.com/ethanwinxters), [@NostalgicSplatterlingSys](https://github.com/NostalgicSplatterlingSys) [@mortisfication](https://github.com/mortisfication) [@tellthatmick](https://github.com/tellthatmick), [@TheUmbrellaChronicles](https://github.com/TheUmbrellaChronicles)
+  
 </div>
 
 ![](https://64.media.tumblr.com/c214bf5aee905269aaf1a021e9773690/e7f5f8e69146247e-3c/s2048x3072/5e8c2670f941793897b15db876ad3fb032f6dffd.pnj)
