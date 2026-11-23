@@ -66,7 +66,7 @@
 <div align="center">
 Pony Town Mutuals
   
-  [@cedarDogg](https://github.com/cedarDogg), [@ethanwinxters](https://github.com/ethanwinxters), [@NostalgicSplatterlingSys](https://github.com/NostalgicSplatterlingSys) [@mortisfication](https://github.com/mortisfication) [@theloststories](https://github.com/theloststories), [@TheUmbrellaChronicles](https://github.com/TheUmbrellaChronicles)
+  [Bucky](https://github.com/ethanwinxters), [Cedar](https://github.com/cedarDogg), [Kerry](https://github.com/TheUmbrellaChronicles), [Mortis](https://github.com/mortisfication), [NS Sys](https://github.com/NostalgicSplatterlingSys), [Xavier](https://github.com/theloststories)
   
 </div>
 
